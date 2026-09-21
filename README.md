@@ -215,4 +215,4 @@ Royal Revolt 2 is offered as a complete free version for Windows, including all 
 Get ready to conquer and build your empire with Royal Revolt 2! Download now and start your adventure today!
 
 ---
-**Last updated:** 2026-09-20 22:13:01 UTC
+**Last updated:** 2026-09-21 00:39:22 UTC
